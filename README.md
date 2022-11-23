@@ -1,1 +1,1 @@
-Hellhole profile. Get out immediately or suffer terrible faith.
+Hellhole profile. Leave immediately or suffer terrible fate.
